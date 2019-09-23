@@ -10,5 +10,9 @@ One of my favorite hobbies is to embrace my nerdy side. This includes hunting ne
 
 
 [My little brother doing his best impersonation of Buu](lilbro.jpg)
-[Toy Galaxay History of Transformers](https://www.youtube.com/watch?v=YHzztKWinXs)
+
+
+[Toy Galaxy: History of Transformers](https://www.youtube.com/watch?v=YHzztKWinXs)
+
+
 ###### [HOME](index.md)
